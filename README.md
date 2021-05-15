@@ -1,0 +1,2 @@
+# GFN
+Good for nothing
